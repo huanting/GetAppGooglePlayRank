@@ -1,0 +1,1 @@
+![image](https://github.com/huanting/GetAppGooglePlayRank/introduce.png)
